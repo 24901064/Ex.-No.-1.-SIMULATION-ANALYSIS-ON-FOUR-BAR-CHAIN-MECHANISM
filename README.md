@@ -53,7 +53,7 @@
 ![empd ex 1 1](https://github.com/user-attachments/assets/450fa266-d5dd-4ed3-b77b-3ac7aabe4bd4)
 
 
-### Name:BHARANI KUMAR S
+### Name: BHARANI KUMAR S
 ### Register Number: 212224230035
 
 ## RESULT:
